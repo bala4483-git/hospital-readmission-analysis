@@ -159,7 +159,6 @@ Currently based in Vancouver, BC and open to Senior BSA / Technical BA opportuni
 
 - Vancouver, BC
 - [dasarib065@gmail.com](mailto:dasarib065@gmail.com)
-- [LinkedIn](https://linkedin.com/in/bala-d-45b423275)
 - [GitHub](https://github.com/bala4483-git)
 
 ---
